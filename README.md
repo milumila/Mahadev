@@ -1,9 +1,9 @@
 ![Typing SVG](https://readme-typing-svg.herokuapp.com/?lines=Welcome+To+Txt+Uploader+Bot+!)
 
-***Welcome to DRM bot made by @hii_fyu (Instagram)***
+***Welcome to MY FAMILY***
 
-**Don't Remove Credit tag**
-**Note:** CP DRM SUPPORTED MINIMUM QUALITY 360
+**HAR HAR MAHADEV**
+**Note:** JAI MAHAKAL
 
 ## Commands
 
